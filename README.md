@@ -1,5 +1,5 @@
 - 🌞 Hi, I’m @solsolet
-- 💗 I’m interested in music, videogames, design :)
+- 💗 I’m interested in music, videogames and design :)
 - 🎮 I’m currently studying multimedia engineering
 - 🔎 I’m looking to collaborate on projects related to my interests and learn a lot of things :P
 - 🗣 I speak Catalan, Spanish and I'm learning English
